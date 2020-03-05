@@ -1,1 +1,1 @@
-# insta_hunter
+"tek mi kaldı kajmeran?"
